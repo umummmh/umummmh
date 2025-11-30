@@ -20,8 +20,10 @@ ${\textsf{\color{#cfcfcf} 17yo}}$ <img src="https://file.garden/Zl2CmebwmXKvGhRN
 
 <p align="center">
 <a href="https://sugaromantic.atabook.org">ata</a> ㅤ✦  ㅤ
-<a href="https://github.com/castlevnla">alt</a>
+strwpage (WIP)
 </p>
+
+
 
 
 <p align="center">
@@ -30,8 +32,12 @@ ${\textsf{\color{#cfcfcf} 17yo}}$ <img src="https://file.garden/Zl2CmebwmXKvGhRN
 
 <h6 align="center">ㅤ© ㅤ  wavyskies on tumblr</h6> 
  <p align="center">
-  ${\textsf{\color{#8c584c}　He　/　him　✦　w2i/boop me 2 int (comf)　✦　C*H denied}}$
-
+  ${\textsf{\color{#8c584c}　He　/　him　✦　w2i/boop me 2 int (comf)　✦　c*h denied}}$
+   
+<p align="center">
+━━━━━━
+ </p>
+ 
   <p align="center">
   ${\textsf{\color{#847265}  I don't talk much unless I feel comfortable with smn, I don't usually like hugs unless I have a c*h on one of my ponies, ok? ok}}$ 
 
