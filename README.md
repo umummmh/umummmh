@@ -12,7 +12,7 @@
   ${\textsf{\color{#e1e8ed}　w2i/boop me 2 int (comf)}}$
 
 <p align="center">
-        <a href="https://jonalover.atabook.org"> ata</a>
+        <a href="https://rentry.co/5xiian"> ata</a>
 </p>
 </div>
   
